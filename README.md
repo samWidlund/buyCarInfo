@@ -3,21 +3,25 @@
 ## trygghansa
 
 samuel - för mig så är det 500 / månad för trafik 600/månad för halv
+<br>
 mamma - 172 kr månad för trafikförsäk, halv o helförsäkring 236 & 397 kr / månad
 
 ## folksam - bra!
 
 samuel - halv stor 406 kr per månad? annars halv 339 eller trafik 258
+<br>
 mamma - trafik 117 kr per månad, halv 172 och halv stor 206 kr / månad
 
 ## länsförsärkingar
 
 samuel - halvförsäkring 375 kr per månad, trafik typ 330 kr
+<br>
 mamma - halv 161 kr/månad, trafik 134 kr månad helföräskring 378 kr månad
 
 ## ica
 
 samuel - trafik 446 / månad halv 663 / månad
+<br>
 mamma - trafik 189 / månad halv 316 / månad
 
 # betalning
